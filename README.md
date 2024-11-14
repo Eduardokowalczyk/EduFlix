@@ -61,4 +61,4 @@ Vingadores Ultimato
 Após Thanos eliminar metade das criaturas vivas, os Vingadores têm de lidar com a perda de amigos e entes queridos. Com Tony Stark vagando perdido no espaço sem água e comida, Steve Rogers e Natasha Romanov lideram a resistência contra o titã louco.
 
 
-![](https://media.tenor.com/mme2qVjaN8oAAAAM/avengers-endgame-marvel.gif)
+![](https://media1.tenor.com/m/T08_6oGbRUwAAAAC/loki-tesseract.gif)
