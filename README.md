@@ -62,3 +62,11 @@ Após Thanos eliminar metade das criaturas vivas, os Vingadores têm de lidar co
 
 
 ![](https://media1.tenor.com/m/T08_6oGbRUwAAAAC/loki-tesseract.gif)
+
+
+Invocação Do mal
+
+Os investigadores paranormais Ed e Lorraine Warren trabalham para ajudar a família aterrorizada por uma entidade demoníaca em sua fazenda.
+
+
+![](https://media1.tenor.com/m/dq9Qd5eDRIEAAAAd/scared-carolyn-perron.gif)
