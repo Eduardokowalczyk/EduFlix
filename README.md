@@ -38,3 +38,11 @@ Po é um panda que trabalha na loja de macarrão da sua família e sonha em tran
 
 
 ![](https://media1.tenor.com/m/xIi9FxtE2PMAAAAd/kung-fu-panda.gif)
+
+
+Velozes E Furiosos
+
+Brian O'Conner é um policial que se infiltra no submundo dos rachas de rua para investigar uma série de furtos. Enquanto tenta ganhar o respeito e a confiança do líder Dom Toretto, ele corre o risco de ser desmascarado.
+
+
+![](https://media.tenor.com/w3Bt08rMbekAAAAM/stare-glare.gif)
