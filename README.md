@@ -70,3 +70,11 @@ Os investigadores paranormais Ed e Lorraine Warren trabalham para ajudar a famí
 
 
 ![](https://media1.tenor.com/m/dq9Qd5eDRIEAAAAd/scared-carolyn-perron.gif)
+
+
+Gente Grande
+
+A morte do treinador de basquete de infância de velhos amigos reúne a turma no mesmo lugar que celebraram um campeonato anos atrás. Os amigos, acompanhados de suas esposas e filhos, descobrem que idade não significa o mesmo que maturidade.
+
+
+![](https://media1.tenor.com/m/wRGAkFkUFx8AAAAd/grown-ups-dave-spade.gif)
