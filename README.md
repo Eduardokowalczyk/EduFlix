@@ -22,3 +22,11 @@ O porco-espinho Sonic é teletransportado para a Terra. Após causar uma pane el
 
 
 ![](https://media1.tenor.com/m/suSxl49GmxsAAAAC/sonic-sonic-exe.gif)
+
+
+Juntos Para Sempre
+
+Ethan e sua jovem neta CJ vivem em uma fazenda do Michigan com seu cachorro Bailey. Quando a mãe de CJ decide levá-la embora, Bailey reencarna em um filhote e embarca em uma jornada para acompanhar a garota.
+
+
+![](https://media1.tenor.com/m/W646gL_x0zAAAAAd/dog-mans-best-friend.gif)
