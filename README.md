@@ -37,4 +37,4 @@ Kung Fu Panda
 Po é um panda que trabalha na loja de macarrão da sua família e sonha em transformar-se em um mestre de kung fu. Seu sonho se torna realidade quando, inesperadamente, ele deve cumprir uma profecia antiga e estudar a arte marcial com seus ídolos, os Cinco Furiosos. Po precisa de toda a sabedoria, força e habilidade que conseguir reunir para proteger seu povo de um leopardo da neve malvado.
 
 
-![](https://media1.tenor.com/m/LOsBtR0SojAAAAAd/kung-fu-panda-po.gif)
+![](https://media1.tenor.com/m/xIi9FxtE2PMAAAAd/kung-fu-panda.gif)
