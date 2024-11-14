@@ -54,3 +54,11 @@ Acompanhe a história de Desmond T. Doss, um médico do exército americano que,
 
 
 ![](https://media1.tenor.com/m/K9drhaNBVB0AAAAd/surprised-shocked.gif)
+
+
+Vingadores Ultimato
+
+Após Thanos eliminar metade das criaturas vivas, os Vingadores têm de lidar com a perda de amigos e entes queridos. Com Tony Stark vagando perdido no espaço sem água e comida, Steve Rogers e Natasha Romanov lideram a resistência contra o titã louco.
+
+
+![](https://media.tenor.com/mme2qVjaN8oAAAAM/avengers-endgame-marvel.gif)
