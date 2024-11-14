@@ -6,3 +6,11 @@ Criaturas monstruosas conhecidas como Kaiju começam a emergir do mar. Para comb
 
 
 ![](https://media1.tenor.com/m/fk2fjov6ra4AAAAd/jaeger-pacific-rim.gif)
+
+
+Pinoquio
+
+Em uma vila italiana, o boneco de madeira Pinóquio é trazido à vida pela Fada Azul e busca todo tipo de aventura enquanto se esforça para ser um menino de verdade. Porém, tudo vai de mal a pior quando ele deixa o pai para seguir o circo.
+
+
+![](https://media1.tenor.com/m/eGqOV9go-PgAAAAd/amazed-pinocchio.gif)
