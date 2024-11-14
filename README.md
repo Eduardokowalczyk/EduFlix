@@ -14,3 +14,11 @@ Em uma vila italiana, o boneco de madeira Pinóquio é trazido à vida pela Fada
 
 
 ![](https://media1.tenor.com/m/eGqOV9go-PgAAAAd/amazed-pinocchio.gif)
+
+
+Sonic
+
+O porco-espinho Sonic é teletransportado para a Terra. Após causar uma pane elétrica em parte dos Estados Unidos, ele precisa escapar do maligno cientista Dr. Robotnik.
+
+
+![](https://media1.tenor.com/m/suSxl49GmxsAAAAC/sonic-sonic-exe.gif)
